@@ -23,7 +23,7 @@ Only the most _amazing_ recipes that will sooth any life quarrels that you may b
 ### Relevant pictures
 
 1. Sarma
-2. [Paprikas] (https://www.hungariantidbits.com/wp-content/uploads/2015/01/paprikaskrumpli-1.jpg)
+2. [Paprikas](https://www.hungariantidbits.com/wp-content/uploads/2015/01/paprikaskrumpli-1.jpg)
 
 > The best food I have ever eaten in my life - Me XD
 
